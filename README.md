@@ -1,0 +1,1 @@
+# Kompiuteri-komponentai.github.io
